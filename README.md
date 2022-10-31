@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Christywho
+- 👀 I’m interested in Learning New Things
+- 🌱 I’m currently learning Data Structures and Algorithms
+- 📫 How to reach me christy.who on insta would do
